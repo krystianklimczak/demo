@@ -1,0 +1,1 @@
+napisac co chcemy
